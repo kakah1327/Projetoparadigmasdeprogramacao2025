@@ -1,0 +1,1 @@
+# Projetoparadigmasdeprogramacao2025
